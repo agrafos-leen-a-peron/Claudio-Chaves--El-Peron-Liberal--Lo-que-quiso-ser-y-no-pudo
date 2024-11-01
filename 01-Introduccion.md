@@ -32,6 +32,7 @@ El escritor Enrique Pavón Pereyra en su libro "Yo, Perón" de l993 tomó ideas 
 > Inglaterra había logrado la creación de un Banco Central, siguiendo el modelo de Sir Otto Niemeyer, proyecto que ni los cipayos de la India se habían atrevido a adoptar.
 > La política de entrega del patrimonio nacional, instaurada desde el gobierno de Rivadavia, se consolidó en aquella década infame con una serie de medidas vergonzosas desde el punto de vista
 de la autodeterminación de los pueblos, siendo claro ejemplo de esta afirmación aquel ultrajante tratado conocido con el nombre de Pacto Roca Runciman".
+
 Esta aseveración no guarda rigor histórico, es forzar la realidad arbitrariamente. 
 
 Poner en boca de Perón, opiniones sobre la Década Infame, haciéndonos creer que el entonces Mayor observaba de esa manera la vida política circundante, es juzgar el pasado con valores del presente. 
