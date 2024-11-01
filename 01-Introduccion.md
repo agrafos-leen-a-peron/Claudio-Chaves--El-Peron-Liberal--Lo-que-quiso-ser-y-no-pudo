@@ -45,7 +45,7 @@ De la misma manera pero desde otro ángulo ideológico el historiador Fermín Ch
 > "Con el desplazamiento del General Ramirez el centro de decisiones fue ocupado por el tandem Farrel-Perón claros representantes del nacionalismo militar que entrevía la posibilidad de desplegar un proyecto político nuevo, no subordinado a los centros del poder mundial".
 
 No hay ningún elemento que corrobore la militancia de Perón en el nacionalismo (a secas) militar, pero fundamentalmente el mayor error es la sensación que le queda al lector después de abordar el párrafo que expresa: 
-"un proyecto no subordinado a los centros de poder mundial", porque la idea que puso en práctica Perón era precisamente la contraria la del acercamiento a los centros neurálgicos del poder político mundial para lograr con ellos acuerdos favorables para la Argentina.
+"un proyecto no subordinado a los centros de poder mundial", porque la idea que puso en práctica Perón era precisamente la contraria a la del acercamiento a los centros neurálgicos del poder político mundial para lograr con ellos acuerdos favorables para la Argentina.
 
 Los desencuentros exteriores con los EEUU fueron consecuencia de la política seguida durante la guerra por el Presiente Castillo y heredada por el gobierno de facto del 43. 
 Algunos militares -y Perón no estaba entre ellos-, veían con simpatía continuar en la misma línea de acción.
